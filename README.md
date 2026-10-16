@@ -21,3 +21,5 @@
 ```
 
 > Manu. Lance Deadlock. Maintenant.
+
+**Pas d'excuse. Joue à Deadlock.**
