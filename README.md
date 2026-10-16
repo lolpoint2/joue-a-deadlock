@@ -23,3 +23,5 @@
 > Manu. Lance Deadlock. Maintenant.
 
 **Pas d'excuse. Joue à Deadlock.**
+
+*On t'attend en lobby.* 🎮
